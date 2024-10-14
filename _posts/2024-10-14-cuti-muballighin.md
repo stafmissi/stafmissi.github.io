@@ -144,3 +144,41 @@ Cuti Muthaliati adalah cuti atau izin meninggalkan tugas yang diberikan kepada p
 5. Pimpinan jemaat berhak untuk membatalkan cuti Muthaliati dan memanggil kembali pekerja tersebut selama masa cuti Muthaliati.
 
 6. Untuk kasus menyingkat masa cuti Muthaliati yang sudah disetujui dan belum terpenuhi seorang pekerja harus memberitahukan kepada pimpinan Jemaat 3 bulan sebelumnya.
+
+### Cuti Tanpa Tunjangan
+
+Cuti Tanpa Tunjangan adalah cuti atau izin meninggalkan tugas yang diberikan kepada pekerja jemaat untuk kepentingan lainnya atas keinginan sendiri dengan tidak diberikan tunjangan.
+
+1. Pekerja jemaat berdasarkan kaidah-kaidah sudah tidak berhak lagi mendapatkan cuti jenis apapun tapi keperluannya adalah mutlak, maka yang bersangkutan bisa diberikan cuti tanpa tunjangan.
+
+2. Pimpinan jemaat akan memperhatikan kondisi pekerja jemaat dimaksud dan akan menentukan persetujuan dan lamanya cuti tanpa tunjangan.
+
+3. Pimpinan jemaat berwenang untuk memberikan cuti tanpa tunjangan maksimal sampai 2 bulan kepada para pekerja jemaat.
+
+4. Pimpinan jemaat berwenang untuk memberhentikan pekerja Jemaat yang terbiasa mengambil keuntungan dari cuti jenis ini berkali-kali.
+
+5. Pekerja jemaat yang masa kerjanya lebih dari 15 tahun, untuk kasus mengambil cuti jenis ini hanya berhak mendapatkan bantuan keuangan lainnya (selain allowance) sampai 2 bulan.
+
+### Cuti Umroh dan Haji
+
+Cuti ibadah Umroh dan Haji diberikan tanpa mengurangi hak cuti yang terlah diatur dalam kaidah ini.
+
+1. Cuti menjalanakan Ibadah Umroh paling lama 15 hari
+
+2. Cuti menjalankan ibadah Haji paling lama 45 hari
+
+### Lain-lain
+
+1. Pekerja jemaat yang sedang menjalankan cuti di luar tempat tugasanya dapat dipanggil kembali oleh pimpinan jemaat atau pejabat yang berwenang untuk bekerja apabila ada kepentingan dinas mendesak. Biaya perjalanan pulang akan ditanggung oleh jemaat.
+
+2. Dalam hal tertentu bila pimpinan jemaat menganggap perlu, segala jenis cuti pekerja jemaat dapat ditangguhkan.
+
+3. Untuk cuti pergi keluar negeri harus meminta izin terlebih dahulu dari Khalifah-e-Waqt dengan melalui atau rekomendasi dari Pimpinan Jemaat setempat/nasional.
+
+### Teknis Pengambilan Cuti
+
+1. Masuk ke portal [https://e-office.dcidn.com](https://e-office.dcidn.com)
+2. Klik menu: Cuti dan izin Pribadi
+3. Klik tombol Buat
+4. Isi formulir dan unggah dokumen yang diperlukan (yang diterima adalah dalam format PDF atau JPG)
+5. Tunggu persetujuan dari Kantor Misi
