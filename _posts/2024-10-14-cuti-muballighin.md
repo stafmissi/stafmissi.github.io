@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Cuti Muballighin"
+title: "Kaidah Cuti Muballighin"
 categories: cuti
 ---
 
@@ -175,10 +175,3 @@ Cuti ibadah Umroh dan Haji diberikan tanpa mengurangi hak cuti yang terlah diatu
 
 3. Untuk cuti pergi keluar negeri harus meminta izin terlebih dahulu dari Khalifah-e-Waqt dengan melalui atau rekomendasi dari Pimpinan Jemaat setempat/nasional.
 
-### Teknis Pengambilan Cuti
-
-1. Masuk ke portal [https://e-office.dcidn.com](https://e-office.dcidn.com)
-2. Klik menu: Cuti dan izin Pribadi
-3. Klik tombol Buat
-4. Isi formulir dan unggah dokumen yang diperlukan (yang diterima adalah dalam format PDF atau JPG)
-5. Tunggu persetujuan dari Kantor Misi
