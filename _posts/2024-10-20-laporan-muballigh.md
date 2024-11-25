@@ -14,11 +14,11 @@ Salah satu kewajiban seorang Muballigh adalah melaporkan kegiatan-kegiatannya, b
 
 Dalam formulir laporan muballigh, terdapat formulir
 
-#### 1. Muballigh
+#### Muballigh
 
 Maksudnya adalah Nama Muballigh. Kolom pertanyaan ini secara standar dinon-aktifkan. Menunjukkan nama pengguna/muballigh. 
 
-#### 2. Nama Kegiatan
+#### Nama Kegiatan
 
 Kolom pertanyaan ini diisi dengan kegiatan yang dilaporkan. Misalnya
 - Tabligh dengan Ustadz Fulan
@@ -33,7 +33,7 @@ Kolom pertanyaan ini diisi dengan kegiatan yang dilaporkan. Misalnya
 - Rapat Koordinasi Muballigh di Jemaat Bekasi
 - Rapat BMT Jabar-03  
 
-#### 3. Tanggal Kegiatan
+#### Tanggal Kegiatan
 
 Tanggal kegiatan harus diisi sesuai dengan tanggal kegiatan tersebut berlangsung.
 
@@ -41,12 +41,41 @@ Kesalahan umum terjadi:
 - Tanggal yang dipilih adalah tanggal ketika melaporkan
 - Tanggal yang dipilih salah bulan; Biasanya karena melaporkan kegiatan bulan lalu namun tidak teliti ketika memilih bulan
 
+#### Daerah
 
-#### 4. Daerah
+#### Jemaat
 
-#### 5. Jemaat
+#### Berita Kegiatan (Opsional)
 
-#### 6. Berita Kegiatan (Opsional)
+#### A - Tabligh Pribadi
+​
+#### A - Baiat
+​
+#### A - Tabligh Anggota
+​
+#### B - Rabtah Pribadi
+​
+#### B - Rabtah Anggota
+​
+#### C - Tarbiyat
+​
+#### D - Kunjungan
+​
+Kunjungan satu rumah dianggap satu kali kunjungan
+
+#### E - Ta'limul Quran
+​
+#### F - Muthola'ah
+​
+#### G - Artikel
+​
+#### H - Ibadah Pribadi
+​
+#### I - Tugas Lain
+​
+#### J - Evaluasi Bulanan
+​
+#### K - Badan Musyawarah Tabligh (BMT)
 
 ### Laporan Harian atau Diary Report
 
