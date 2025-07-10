@@ -82,7 +82,7 @@ Ia harus selalu memantau propaganda-propaganda permusuhan melawan Islam dan Ahma
 
 ### Pasal 102
 
-Kapan dan bilamana diperlukan, ia mengadakan seminar tabligh dan tarbiyat. memanfaatkan media sepenuhnya. Ia harus
+Kapan dan bilamana diperlukan, ia mengadakan seminar tabligh dan tarbiyat. memanfaatkan media sepenuhnya. Ia harus memanfaatkan media sepenuhnya.
 
 ### Pasal 103
 
