@@ -4,7 +4,7 @@ title: "Cerminan Orang Yang Mewakafkan Diri Untuk Allah"
 categories: nasehat
 ---
 
-Berikut ini kami tampilkan beberapa cerminan orang yang telah mewakafkan hidup sepenuhnya untuk Allah Taala, yang dikutip dari tulisan Hadhrat Masih Mau'ud a.s.:²
+Berikut ini kami tampilkan beberapa cerminan orang yang telah mewakafkan hidup sepenuhnya untuk Allah Taala, yang dikutip dari tulisan Hadhrat Masih Mau'ud a.s.:
 
 Janganlah cemas akan kutuk laknat dunia, sebab kutuk laknat itu lama-kelamaan akan lenyap sirna dengan sendirinya bagaikan asap menipis dan hilang di udara. Mereka tidak dapat mengubah hari jadi malam. Apa yang harus kamu takuti adalah laknat Tuhan yang turun dari langit. Laknat itu jika menimpa seseorang akan menjadikannya binasa di alam ini, demikian pula di alam nanti.
 
