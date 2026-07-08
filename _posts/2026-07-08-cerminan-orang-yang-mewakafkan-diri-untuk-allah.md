@@ -1,10 +1,28 @@
 ---
 layout: post
-title: "Cerminan Orang yang Mewakafkan Diri untuk Allah"
+title: "Cerminan Orang Yang Mewakafkan Diri Untuk Allah"
 categories: nasehat
 ---
 
-Berikut ini kami tampilkan beberapa cerminan orang yang telah mewakafkan hidup kamu akan tergelincir. Bumi, dengan segala isinya, sedikit pun tidak akan dapat membinasakanmu apabila hubunganmu dengan Tuhan terjalin erat. Manakala suatu kemalangan menimpa dirimu, hal itu bukanlah dikarenakan perbuatan seterumu, melainkan oleh tanganmu sendiri. Apabila kehormatan duniawi satu demi satu hilang, Allah akan menganugerahimu kehormatan yang kekal abadi di Langit. Oleh karena itu, kamu jangan meninggalkan Dia.
+Berikut ini kami tampilkan beberapa cerminan orang yang telah mewakafkan hidup sepenuhnya untuk Allah Taala, yang dikutip dari tulisan Hadhrat Masih Mau'ud a.s.:²
+
+Janganlah cemas akan kutuk laknat dunia, sebab kutuk laknat itu lama-kelamaan akan lenyap sirna dengan sendirinya bagaikan asap menipis dan hilang di udara. Mereka tidak dapat mengubah hari jadi malam. Apa yang harus kamu takuti adalah laknat Tuhan yang turun dari langit. Laknat itu jika menimpa seseorang akan menjadikannya binasa di alam ini, demikian pula di alam nanti.
+
+Kamu tidak dapat membela dirimu dengan sikap menonjolkan diri, sebab Allah, Tuhanmu, dapat melihat sampai ke dasar lubuk hati manusia. Bagaimanakah kamu dapat memperdaya Tuhan? Maka, luruskanlah hatimu, bersihkanlah serta sucikanlah batinmu, dan berdirilah dengan teguh. Sebab, apabila di dalam dirimu terdapat sekelumit saja kegelapan, maka akan dihalaunya cahaya nuranimu. Dan andaikan di satu sudut relung dadamu ada terselip sifat angkuh, ria, cinta diri sendiri atau malas, kamu tidak dianggap sesuatu yang dapat diterima Tuhan.
+
+Jangan-jangan, oleh karena beberapa hal yang kamu sangka amal baktimu, kamu sebenarnya menipu dirimu sendiri karena beranggapan bahwa segala yang harus kamu kerjakan telah kamu laksanakan. Sebab, Tuhan menghendaki agar di dalam wujudmu terjadi suatu revolusi yang dahsyat dan menyeluruh.
+
+Dia menuntut dari dirimu suatu maut. Sesudah maut itu kamu akan diberi-Nya kehidupan yang baru. Sudahilah pertentangan-pertentangan antara satu sama lain dengan jalan aman dan damai. Maafkanlah kesalahan saudaramu; sebab, sungguh jahatlah dia yang tidak bersedia diajak berdamai oleh saudaranya. Dia akan memutuskan hubungan, sebab ia telah mencoba menanam bibit perpecahan.
+
+Tinggalkanlah keinginan menuruti hawa nafsu dan bersitegang rasa antara satu sama lain. Walaupun seandainya kamu berada di pihak yang benar, bersikaplah merendahkan diri seakan-akan kamu bersalah, agar kamu sendiri diperlakukan dengan pengampunan. Lepaskanlah diri segala sesuatu yang akan mengemukakan hawa nafsumu, sebab pintu yang melaluinya kamu dipersilahkan masuk tak dapat dilalui orang yang gemuk oleh hawa nafsunya.
+
+Alangkah malangnya orang yang tidak mempercayai apa yang difirmankan Tuhan dan yang telah kusampaikan kepadamu. Sekiranya kamu mau agar Tuhan di Langit ridha kepadamu, maka segeralah bersatu padu seakan-akan kamu antara satu sama lain seperti saudara-saudara sekandung layaknya. Di antara kamu sekalian, orang yang patut dihormati hanyalah dia yang suka mengampuni kesalahan saudaranya. Malanglah dia yang bersikeras kepala dan tidak bersedia memaafkan kesalahan orang lain, sebab ia bukan dari golonganku. Hendaknya kamu senantiasa takut akan laknat Allah, sebab Dia itu kudus, sangat besar ghairatnya dan istimewa di dalam kekudusannya. Setiap orang yang berkelakuan buruk tidak akan dapat memperoleh qurub-Nya. Begitu juga orang zalim, setiap orang yang tidak jujur dan setiap orang yang tidak mempunyai ghairat akan namanya.
+
+Barang siapa tergila-gila akan keduniaan, adalah bagaikan seekor anjing atau semut atau burung nazar tatkala melihat bangkai, dan mereka hanya mengejar-ngejar kemewahan serta kesenangan di dunia semata, mereka tidak akan dapat memperoleh qurub-Nya. Setiap orang yang tidak bersih matanya akan tetap jauh dari Dia. Setiap orang yang hatinya tidak bersih tetap tidak akan menyadari kehadiran Dia.
+
+Barangsiapa berada dalam penderitaan, seakan-akan berada dalam api demi kemulian-Nya, akan diselamatkan dari gejolak api penderitaan. Barangsiapa menangis karena-Nya, akan dibuat-Nya gembira. Barangsiapa menjauhkan diri dari urusan-urusan dunia demi Dia, akan menemukan Dia. Dengan kesungguhan hati dan dengan penuh penuh ketulusan serta dengan langkah-langkah yang bersemangat, jadilah kamu sahabat Tuhan agar Tuhan pun akan menjadi sahabatmu. Perlihatkanlah belas kasihan terhadap orang-orang bawahanmu, isteri-isterimu dan saudara-saudaramu yang tidak berada, agar kamu pun akan diterima di Langit dengan perlakuan kasih sayang Tuhan. Hendaknya kamu dengan sesungguh-sungguhnya dan sebenar-benarnya menjadi milik Tuhan, agar Tuhan pun menjadi milikmu.
+
+Hadhrat Masih Mau'ud a.s. bersabda: Perlu juga kiranya kamu sekalian diuji dengan bermacam duka nestapa dan percobaan-percobaan seperti yang dialami oleh orang-orang Mukmin zaman dahulu. Oleh karena itu waspadalah, jangan-jangan kamu akan tergelincir. Bumi, dengan segala isinya, sedikit pun tidak akan dapat membinasakanmu apabila hubunganmu dengan Tuhan terjalin erat. Manakala suatu kemalangan menimpa dirimu, hal itu bukanlah dikarenakan perbuatan seterumu, melainkan oleh tanganmu sendiri. Apabila kehormatan duniawi satu demi satu hilang, Allah akan menganugerahimu kehormatan yang kekal abadi di Langit. Oleh karena itu, kamu jangan meninggalkan Dia.
 
 Kamu sekalian pasti akan dicoba dengan berbagai macam duka cita, sedang beberapa harapanmu hanya tinggal harapan belaka. Dalam menghadapi keadaan serupa itu, kamu sekalian tidak usah patah semangat dan putus asa, sebab Tuhan sedang menguji, apakah langkah perjalananmu menuju Dia teguh atau tidak. Seandainya kamu sekalian menghendaki agar para malaikat di Langit mendendangkan lagu-lagu sanjungan bagimu, deritalah dera dan pukulan yang dihantamkan kepadamu dan bersukacitalah dengan penderitaan itu. Dengarkanlah caci-maki orang, dan bersyukurlah kepada Allah. Alamilah kekecewaan, akan tetapi janganlah memutuskan hubunganmu dengan Dia.
 
