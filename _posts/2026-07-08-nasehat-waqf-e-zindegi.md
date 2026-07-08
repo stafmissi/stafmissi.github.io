@@ -2,7 +2,7 @@
 layout: post
 title: "Nasehat Waqf-e-Zindegi"
 categories: nasehat
-—
+---
 
 Hadhrat Masih Mau’ud a.s. bersabda:
 
